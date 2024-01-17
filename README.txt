@@ -1,4 +1,4 @@
-Ali Javaid UI/UX Designer Portfolio & Resume Landing Page. Designed with ♥️ and creativity by Devcrud.com 
+Ali Javaid UI/UX Designer Resume Landing Page.
 
 Product Page: https://wwww.devcrud.com/
 
